@@ -60,12 +60,14 @@ b.  KCL:
 
  <img width="783" height="1280" alt="WhatsApp Image 2026-05-24 at 6 50 02 PM" src="https://github.com/user-attachments/assets/8536391e-e5da-455b-8bcb-7af02cb18946" />
 
+<img width="846" height="499" alt="image" src="https://github.com/user-attachments/assets/df11865c-a87d-474b-99cd-9edeb16451a6" />
 
 
 ## b.  KCL:
 
 <img width="849" height="1280" alt="WhatsApp Image 2026-05-24 at 6 50 02 PM (1)" src="https://github.com/user-attachments/assets/87c2a1b6-16b1-465f-ae13-757433c3b49f" />
 
+<img width="895" height="568" alt="image" src="https://github.com/user-attachments/assets/ef1bbf70-76f8-4ccb-885d-d440fc7136bf" />
 
 
 RESULT:
